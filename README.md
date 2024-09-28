@@ -1,4 +1,4 @@
-![MasterHead](https://1.bp.blogspot.com/-7A4WynwLsMw/XbBpCXG8fHI/AAAAAAAAMt4/uOa1bpLskYgrwGbllhSu2SDj_Mig8SXJQCLcBGAsYHQ/s1600/2000_600px.gif)
+![MasterHead](https://ibb.co/zXZdRBt)
 # 💫 About Me:
 <img align="right" alt="Coding" width="150" src="https://cdn.dribbble.com/users/1162077/screenshots/3848914/programmer.gif">
 Ai Enthusiast 🤖<br>Founder and Developer of Ai Career  Recommendation App (Android & iOS)📱<br>Web Developer🧑‍💻<br>CSE Student🎓<br>Seeking Opportunities to Innovate and Explore the World 🌏✨
